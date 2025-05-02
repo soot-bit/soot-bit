@@ -5,21 +5,16 @@
 
 </div> 
 
-# 🎒 
+
 
 - **"¡Hola! ¡Soy Dora!"**  
-
 - **"¿Dónde está el mapa?"**  
-
 - **"¡Swiper, no swiping!"**  
   **"¡Swiper, no robes!"** *(Spanish version sometimes used)*
-
 - **"Vámonos! Let’s go!"**
-
 - **"¡Di mapa!"**
-
 - **"Come on, vámonos! Everybody, let’s go!"**  
-*_Dora the trailbraizer*
+*_Dora the trailbraizer   🎒 *
 
 ---
 
